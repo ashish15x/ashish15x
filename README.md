@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Ashish Kumar</h1>
-<h3 align="center">3rd Year Undergrad Pursuing B.Tech</h3>
+<h3 align="center">4th Year Undergrad Pursuing B.Tech</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=ashish15x&label=Profile%20views&color=0e75b6&style=flat" alt="ashish15x" /> </p>
 
