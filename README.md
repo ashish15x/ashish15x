@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **ashish15x@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/18IKmFoN0oRY1DwYXQ9ofn-GMi3SyvJf4/view?usp=sharing](https://drive.google.com/file/d/18IKmFoN0oRY1DwYXQ9ofn-GMi3SyvJf4/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1zbOhhWD8aa0cVN1jKkNa8nhHjlQl0LMw/view?usp=sharing]
 
 - ⚡ Fun fact **I love Bikes**
 
